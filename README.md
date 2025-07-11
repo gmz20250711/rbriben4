@@ -22,4 +22,4 @@
 
 通过以上几点，你可以轻松找到一个既安全又高质量的日本AV资源平台，尽情享受每一部影片带来的乐趣和满足感。
 
-<span style="display:none;">[Canonical link]( )</span>
+<span style="display:none;">[Canonical link](https://github.com/gmz20250711/rbriben4 )</span>
